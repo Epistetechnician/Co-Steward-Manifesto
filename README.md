@@ -1,5 +1,5 @@
 # 📜 Shaan S. Patel's Co-Steward Manifesto for Dream DAO
-Greetings DreamerZs, 👋
+Greetings DreamerZs 👋,
 
 I am Shaan Patel. As I step forward to embrace the Co-Steward role, I wish to communicate my vision and commitment to you, the heart and soul of Dream DAO. In this manifesto, I delve deeper into my plans and goals, and how I intend to facilitate our shared growth. 🌱
 
